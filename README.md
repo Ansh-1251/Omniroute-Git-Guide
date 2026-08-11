@@ -6,3 +6,6 @@ Leonxlnx/taste-skill: Taste-Skill - gives your AI good taste. stops the AI from 
 
 
 https://www.instagram.com/p/Db0wyP_Ev1G/?img_index=2&igsh=cjFsZWJlMWJ5eTl2
+
+
+https://www.instagram.com/p/DbdqSGfEg3t/?img_index=5&igsh=NXI3OTZydGFkNGR4
